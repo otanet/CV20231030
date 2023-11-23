@@ -7,39 +7,6 @@
 
 https://tamaki-lab.connpass.com/event/298367/
 
-
-参加者と発表者のみに公開されます)
-
-発表はzoomで行います．
-
-https://us02web.zoom.us/j/87614708450?pwd=TDZPdVUveWdRb1dFTmcxK0xKYVl2QT09
-
-ミーティング ID: 876 1470 8450
-
-パスコード: yFCvD4
-
-出席登録
-
-(イベント開始時間の2時間前から終了時間まで、参加者のみに公開されます)
-
-
-
-
-
-参加者と発表者のみに公開されます)
-
-発表はzoomで行います．
-
-https://us02web.zoom.us/j/87614708450?pwd=TDZPdVUveWdRb1dFTmcxK0xKYVl2QT09
-
-ミーティング ID: 876 1470 8450
-
-パスコード: yFCvD4
-
-出席登録
-
-(イベント開始時間の2時間前から終了時間まで、参加者のみに公開されます)
-
 イベントの説明
 
 目的：
